@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Gourab Chowdhury</h1>
 - 📫 How to reach me **22cs3069@rgipt.ac.in**
 
-- ⚡ Fun fact **I can shoot and edit interesting Videos.**
+- ⚡ Fun fact **I can shoot&edit interesting Videos and Reels.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
